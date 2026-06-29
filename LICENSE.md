@@ -1,4 +1,4 @@
-# 
+# Inteligente liquidity sniper bot predefinições para Mac OS | Gratuito liquidity sniper bot predefinições para PC Windows. Com detecção de imposto de compra e auditorias de segurança — otimizado para máximo desempeño en cada plataforma.
 
 
 
